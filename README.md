@@ -1,7 +1,3 @@
-# FASTANET LIMITED README
-
-Thank you for your interest in FASTANET LIMITED! Below you'll find important contact information and instructions on how to get in touch with us.
-
 ## Contact Information
 
 - **Address:**  
